@@ -57,6 +57,7 @@ https://en.wikipedia.org/wiki/The_Death_of_Expertise
 
 [http://www.namsilat.com/](http://www.namsilat.com/) (possible website)
 
+
 ![1d10a085586bebf5e1e6653f68823c19.png](images\1d10a085586bebf5e1e6653f68823c19.png)
 
 
@@ -72,6 +73,8 @@ The emptiness created listening to the gong is important
 Lots of allegories about how we feel, and why so many people feel the need go end it.
 
 *whatever this is -kneecaps*
+
+
 ![78df2ef45f552661a2d8a6d930cc9f18.png](images\78df2ef45f552661a2d8a6d930cc9f18.png)
 
 
@@ -136,6 +139,7 @@ https://planetcalc.com/8047/
 
 #### @fakedout
 
+
 ![1a1502f8ae6304e46a44c342019bb2d4.png](images\1a1502f8ae6304e46a44c342019bb2d4.png)
 
 
@@ -145,7 +149,9 @@ suggest using this to search discord for exact context if needed
 
 [https://www.reddit.com/r/facepalm/comments/jmgzx1/b\_hsq\_fnsj\_gfn\_pnccd\_ueg\_kw_ybqiuy/](https://www.reddit.com/r/facepalm/comments/jmgzx1/b_hsq_fnsj_gfn_pnccd_ueg_kw_ybqiuy/)
 
+
 ![673d2d8a85e1bc4f750fb555608e2597.png](images\673d2d8a85e1bc4f750fb555608e2597.png)
+
 
 | I CAN HEAR THE BELLS OUTSIDE MY WINDOW.             | B hsq fnsj gfn pnccd ueg kw ybqiuy.                 |
 |-----------------------------------------------------|-----------------------------------------------------|
@@ -264,6 +270,7 @@ https://docs.google.com/document/d/1xjo42CY2z3GOdmOVdXY1IqpowvUZQPzpOpYSWzF-yPc/
 
 The Most important part.        
 
+
 ![255eceba581034a99ce876ee5607aa56.png](images\255eceba581034a99ce876ee5607aa56.png)
 
 
@@ -284,9 +291,12 @@ eternal_september
 
 There is fairly obvious evidence that at least final_october and u/namislat are the same person--or pretending to be the same person. Looking briefly through u/namsilat’s post history, we don't have to dig far to find this post:
 
+
 ![971754529a6c08702e42b4efbd5cadde.png](images\971754529a6c08702e42b4efbd5cadde.png)
 
+
 “And at my personal sub r/thecorportation” Which pretty much states it outright. However, for brevity take these as well:
+
 
 ![af2d5403957e141505c35e17233e21a2.png](images\af2d5403957e141505c35e17233e21a2.png)
 
@@ -295,16 +305,19 @@ There is fairly obvious evidence that at least final_october and u/namislat are 
 
 As compared to this post in r/thecorporation (the same):
 
+
 ![2781e59cc2c1bdbfe83a20faede7417b.png](images\2781e59cc2c1bdbfe83a20faede7417b.png)
 
 
 And of course, while seemingly a little obvious, these posts, combined with u/namsilat’s profile picture being the same as final_october’s picture on the discord channel:
+
 
 ![295dd6d876ec5cce1cf9d1f72f9df70e.png](images\295dd6d876ec5cce1cf9d1f72f9df70e.png) ![66a748bbc6bd81306567db3aee0c56e5.png](images\66a748bbc6bd81306567db3aee0c56e5.png)
 
 
 
 What’s interesting, is the posts that u/namsilat makes directed at u/final_october, and as far as I can find, never directly admits it.
+
 
 ![eab76b1f0f4b5cbdd2c1f9d8140d18be.png](images\eab76b1f0f4b5cbdd2c1f9d8140d18be.png)
 
@@ -314,6 +327,7 @@ As well as the posts in r/thecorporationwiki:
 https://www.reddit.com/r/thecorporationwiki/
 
 And an example here, in a slightly meta thread after the incredible timing of the GME post:
+
 
 ![36cb2081a7ba6ed85b4fe2237a0304e1.png](images\36cb2081a7ba6ed85b4fe2237a0304e1.png)
 
@@ -332,6 +346,7 @@ The Most important Part?
 
 This leads us to the most important part (in my opinion):
 
+
 ![6ea44c8cda5f4bb104e6768b09a4dc0c.png](images\6ea44c8cda5f4bb104e6768b09a4dc0c.png)
 
 
@@ -349,6 +364,7 @@ Following a pretty standard google query leads us to a Youtube Channel that fina
 
 This is a boundary--
 
+
  ![e71d7a1ab1f1318b83665721aae809c2.png](images\e71d7a1ab1f1318b83665721aae809c2.png)
 
 
@@ -358,12 +374,14 @@ How does this relate?
 
 He owns a web domain. He used it for this. As this statement provides:
 
+
 ![c60a01aae9d2b5ac65aac1389a275d78.png](images\c60a01aae9d2b5ac65aac1389a275d78.png)
 
 
 “My Story is the story” Implies that some digging is required. But take great care. There is a line, there is always a line.
 
 He asked us not to DOX him. DO NOT DOX HIM.
+
 
 ![1acaac9b7b6c9cf45f06b269686a332d.png](images\1acaac9b7b6c9cf45f06b269686a332d.png)
 
