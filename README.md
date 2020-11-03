@@ -3,6 +3,8 @@
 
 Take a moment, stay a while.
 
+## Something to be said, that has been said, but bears repeating: DO NOT dox anyone, including and especially October.
+
 #### How do you organise something like this? 
 
 Trick question, you don't. It's something you feel out, you learn as you go, you don't spread it all out for the sun. So of course, I'm trying to do just that I mentioned you don't do; if you are reading this, I am hoping you will be able to help.
